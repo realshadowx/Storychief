@@ -6,7 +6,8 @@ Whether you’re a content creator, marketer, or business owner, StoryChief offe
 
 You can save big with their exclusive coupon codes! In this article, we’ll guide you through the [50% StoryChief coupon codes](https://storychief.io?fpr=shadow) available right now, how to redeem them, and how much you can save.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXemdN6TlFLS1HvRCXg6JV5Wmssazg2FwJnUkJ6bWghjn2AfmUAOphg8txAPu0ouXDrD_T7QmFZiBjfiXABP9_O99Za6a0DGLq-42amhJPyZGpfTDQrPWoGL_WMjTWt57PWXroey?key=ElS0FZuU4zgwY2YunSyvPLW9)](https://storychief.io?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/2a60a2c6-d6c9-46cf-b033-fe2defffc12c)](https://storychief.io?fpr=shadow)
+
 
 ## Latest StoryChief Coupon Codes
 
@@ -16,14 +17,14 @@ Here are some of the best coupon codes you can use to unlock amazing discounts o
 
 * Discount Details: Save 10% on your first StoryChief subscription
 * Applicable Products/Services: Applies to all StoryChief subscription plans—Personal, Professional, and Enterprise.
-* Expiry Date: Valid until [Insert Date].
+* Expiry Date: Valid until 06/12/2025.
 * How to Use the Code: Enter the code during checkout to receive a 10% discount on your first subscription purchase.
 
 #### Coupon Code: SAVE25
 
 * Discount Details: Get 25% off StoryChief’s Professional and Enterprise subscription plans.
 * Applicable Products/Services: This code is valid for the Professional and Enterprise plans.
-* Expiry Date: Offer valid until [Insert Date].
+* Expiry Date: Offer valid until 06/12/2025.
 * How to Use the Code: Apply the code at checkout when selecting either the Professional or Enterprise plan for an instant 25% off.
 
 #### Coupon Code: FREEMIGRATE
@@ -37,10 +38,10 @@ Here are some of the best coupon codes you can use to unlock amazing discounts o
 
 * Discount Details: Save 30% when purchasing StoryChief’s bundle of services.
 * Applicable Products/Services: This code applies to the bundle that includes StoryChief’s content management tools, distribution, and collaboration features.
-* Expiry Date: Available until [Insert Date].
+* Expiry Date: Available until 06/12/2025.
 * How to Use the Code: Use the code during checkout when purchasing the StoryChief bundle for 30% off.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXemdN6TlFLS1HvRCXg6JV5Wmssazg2FwJnUkJ6bWghjn2AfmUAOphg8txAPu0ouXDrD_T7QmFZiBjfiXABP9_O99Za6a0DGLq-42amhJPyZGpfTDQrPWoGL_WMjTWt57PWXroey?key=ElS0FZuU4zgwY2YunSyvPLW9)](https://storychief.io?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/2a60a2c6-d6c9-46cf-b033-fe2defffc12c)](https://storychief.io?fpr=shadow)
 
 ## How to Redeem StoryChief Coupon Codes?
 
@@ -58,7 +59,7 @@ At checkout, look for the "Promo Code" or "Coupon Code" field. Type in your code
 4. Step 4: Confirm Your Savings
 Once the code is applied, the discount will show up on your total. Review your order and proceed with the purchase.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXemdN6TlFLS1HvRCXg6JV5Wmssazg2FwJnUkJ6bWghjn2AfmUAOphg8txAPu0ouXDrD_T7QmFZiBjfiXABP9_O99Za6a0DGLq-42amhJPyZGpfTDQrPWoGL_WMjTWt57PWXroey?key=ElS0FZuU4zgwY2YunSyvPLW9)](https://storychief.io?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/2a60a2c6-d6c9-46cf-b033-fe2defffc12c)](https://storychief.io?fpr=shadow)
 
 ## Pricing Information & How Much You Can Save
 
@@ -69,7 +70,7 @@ Here’s a breakdown of the pricing for StoryChief’s subscription plans, and h
 * Enterprise Plan: Normally priced at $100/month. Use SAVE25 to get the plan for only $75/month, saving $25 each month.
 * Content Management & Distribution Bundle: Normally priced at $120/month. With the BUNDLE30 code, you’ll pay just $84/month, saving a massive $36!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXemdN6TlFLS1HvRCXg6JV5Wmssazg2FwJnUkJ6bWghjn2AfmUAOphg8txAPu0ouXDrD_T7QmFZiBjfiXABP9_O99Za6a0DGLq-42amhJPyZGpfTDQrPWoGL_WMjTWt57PWXroey?key=ElS0FZuU4zgwY2YunSyvPLW9)](https://storychief.io?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/2a60a2c6-d6c9-46cf-b033-fe2defffc12c)](https://storychief.io?fpr=shadow)
 
 ## About StoryChief
 
